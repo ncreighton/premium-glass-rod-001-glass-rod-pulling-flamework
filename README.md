@@ -1,0 +1,2 @@
+# premium-glass-rod-001-glass-rod-pulling-flamework
+Tired of losing track of which glass rod batch has the perfect COE or forgetting your last pull's exact soak time? Your flamework studio deserves the same precision you bring to every piece.  This Notion template transforms your glass studio into a seamlessly organized operation, from rod inventory and pull logs to firing schedules and project mile
